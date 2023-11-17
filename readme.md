@@ -1,1 +1,1 @@
-Некоторые бизнес планы и презентации.
+Analysis and development of tourism in Guinea Bissau.
